@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> عيناك نار في ليل السهر
+> وقلبي يذوب من هذا القدر
+> تعالي إلي بين الظلال
+> نعيش غراما يفوق الخيال
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
